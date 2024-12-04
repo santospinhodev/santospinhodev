@@ -9,7 +9,7 @@
 
 ###
 
-<img align="right" height="150" src="https://br.freepik.com/vetores-gratis/hacker-operando-uma-ilustracao-do-icone-dos-desenhos-animados-laptop-conceito-de-icone-de-tecnologia-isolado-estilo-flat-cartoon_11602236.htm#fromView=search&page=1&position=10&uuid=62099de8-f0a1-48d7-826f-43803fa17193"  />
+<img align="right" height="150" src="https://img.freepik.com/vetores-gratis/hacker-operando-uma-ilustracao-do-icone-dos-desenhos-animados-laptop-conceito-de-icone-de-tecnologia-isolado-estilo-flat-cartoon_138676-2387.jpg?t=st=1733320618~exp=1733324218~hmac=7f3caabb60619ffccf40a577da80c67c576ed6ad9723e0af04422594fb8ad656&w=740"  />
 
 ###
 
